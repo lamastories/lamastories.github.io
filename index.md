@@ -1,1 +1,1 @@
-Stories for children created by: Shubham Bajpai and Janet Susan Osorio Lopez
+Stories for children created by Janet Susan Osorio Lopez and Shubham Bajpai
